@@ -63,7 +63,7 @@ If allowed more time to make adjustments to the game I would have loved to learn
 
 ## Interview Recording URL Link
 
-[My 5-minute Interview Recording](https://www.loom.com/share/23b6155761634eeea1a946388d84e1f1
+[My 5-minute Interview Recording] https://www.loom.com/share/23b6155761634eeea1a946388d84e1f1
 
 
 ## License
